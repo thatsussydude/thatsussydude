@@ -1,0 +1,4 @@
+- i suck at everything
+- i play bloxd.io (name is thatsussydude)
+- i also play crk (name is TheUltimateFool)
+- ok bye
